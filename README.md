@@ -1,0 +1,2 @@
+# qurbonov.uz
+Shaxsiy sayt
